@@ -1,2 +1,2 @@
 # KohiHQ Website
-this is the kohiHQ.net Website Source Code if you want it here you go please just credit me for fixing it.
+this is the kohiHQ.tk Website cuz Richland School Distict blocked KohiHQ.net for so F.
